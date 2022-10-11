@@ -1,3 +1,3 @@
 - 👋 Opa @SrRissatto 
-- 👀 I’m interested  em programação.
-- 📫 How to reach me :rayanrissatto87@gmail.com
+- 👀 Eu estou interessado em programação.
+- 📫 Como falar comigo :rayanrissatto87@gmail.com
