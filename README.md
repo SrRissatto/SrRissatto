@@ -1,3 +1,3 @@
 - 👋 Opa @SrRissatto 
 - 👀 Eu estou interessado em programação.
-- 📫 Como falar comigo :rayanrissatto87@gmail.com
+- 📫 Como falar comigo : rayanrissatto87@gmail.com
