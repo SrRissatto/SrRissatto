@@ -1,3 +1,1 @@
-- 👋 Opa @SrRissatto 
-- 👀 Eu estou interessado em programação.
-- 📫 Como falar comigo : rayanrissatto87@gmail.com
+I'm Rayan, I'm 16 years old, I'm from Brazil.
